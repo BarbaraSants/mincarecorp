@@ -1,1 +1,1 @@
-https://barbarasants.github.io/mindcarecorp/
+https://barbarasants.github.io/mincarecorp/
