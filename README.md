@@ -1,1 +1,1 @@
-# mincarecorp
+https://barbarasants.github.io/mindcarecorp/
